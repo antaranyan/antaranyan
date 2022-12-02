@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-> Reader, is an honest book. It warns you at the outset that my sole purpose in writing it has been a private and domestic one. I have bad no thought of serving you or of my own fame; such a plan would be beyond my powers.  
+> This, reader, is an honest book. It warns you at the outset that my sole purpose in writing it has been a private and domestic one. I have bad no thought of serving you or of my own fame; such a plan would be beyond my powers.  
 >
 > -- _from Montaigne_
 
